@@ -4,6 +4,7 @@ High school senior interested in:
 - UX design
 - Open source software 
 - Music production
+- (and more...)
 
 
 I sometimes upload the music I write:
