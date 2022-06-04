@@ -1,4 +1,4 @@
-High school senior interested in:
+High school graduate interested in:
 - Game development
 - Game engine development
 - UX design
